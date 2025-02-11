@@ -35,4 +35,6 @@ Why Choose Origyn IVF?
 ✔ High Success Rates – Our advanced fertility treatments have helped thousands of families achieve their dream of parenthood.
 
 ✔ Ethical & Transparent Approach – We believe in honesty, clarity, and the highest ethical standards in reproductive healthcare.
+https://www.origynivf.com/what-is-necrozoospermia-causes-diagnosis-treatme/
+https://www.origynivf.com/
 
